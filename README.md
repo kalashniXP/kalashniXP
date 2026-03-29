@@ -10,6 +10,5 @@
 <img src="https://64.media.tumblr.com/365034bb19b1841eb7aa91ba7be3ef92/79d8b316934d24c3-97/s100x200/bb27f0557cfd699b30b2187e5ef77e52bc8d239b.pnj">
 <img src="https://64.media.tumblr.com/98de92056ba480fa36b061c377607262/b71a6f05aae197fe-26/s100x200/651a729c00dd9d70ed9a654d50bda533f48c080d.pnj">
 <img src="https://64.media.tumblr.com/0f27aad08c1251e8b8419aa90837ce35/7335f8922591cbec-ab/s250x400/97f78f8d3dd3cd48f08c9f16108c4c8dd76e05c6.gifv">
-<img src="https://64.media.tumblr.com/fcd486fbf64a6d933206b8e05363d2b3/2ba8d42ffe17a97f-0b/s100x200/6e5e14b72a76c3f47a16c5ff7686d45407561e3a.pnj">
 </p>
 <p align="center"><sup>say something to me -> <a href="https://kalashnixp.straw.page/">strawpage</a></sup></p> <align="center">
