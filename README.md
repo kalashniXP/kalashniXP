@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=kalashniXP&color=c70202&label=⋆˚꩜｡)
+
 <img src="https://i.ibb.co/ccVNZS1j/ezgif-com-animated-gif-maker.gif" align="left" style="width: 500px; margin-right: 20px;" >
  <h3 align="center">kalashniXP ᠵデ气亠 💥</h3>
  <h4 align="center">Ícaro (or Icarus)</h4>
